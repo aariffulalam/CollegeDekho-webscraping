@@ -1,1 +1,1 @@
-# Collage-Dekho
+# College-Dekho
